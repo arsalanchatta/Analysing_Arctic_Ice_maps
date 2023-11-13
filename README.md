@@ -1,1 +1,0 @@
-# Analysing_Arctic_Ice_maps
